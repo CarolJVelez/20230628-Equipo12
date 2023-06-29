@@ -1,2 +1,2 @@
 Integrantes grupo 12
-- Carol Velez - Avril Tihista
+- Carol Velez - Avril Tihista - Priscila Alvarado
